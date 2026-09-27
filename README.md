@@ -1,0 +1,2 @@
+# premium-yakut-knife-001-yakut-knife-forging-asymmetr
+Tired of guessing the exact asymmetric grind angle for your Yakut knife? This Notion template gives you a repeatable system to track every forge session and nail the grind geometry every time.  Yakut Knife Forging &amp; Asymmetric Grind Craft Hub solves the trial-by-fire chaos of hand-forging a true Yakut blade. It centralizes your grind specs, steel i
